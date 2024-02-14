@@ -1,5 +1,5 @@
 
--->∿  Rommel! ﹢ he/him
+-->∿  Muji! ﹢ he/him
 ﹐♡ : ily gay bros ﹔ 
- info ﹐artist
+  ﹐artist
 
