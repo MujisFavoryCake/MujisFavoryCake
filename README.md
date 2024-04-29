@@ -1,5 +1,4 @@
 
--->∿  Muji! ﹢ he/him
-﹐♡ : ily gay bros ﹔ 
+-->∿  Muji! ﹢ he/him 
   ﹐artist
 
