@@ -1,4 +1,4 @@
 
--->∿  Muji! ﹢ he/him 
+-->∿  Muji! ﹢ he/she 
   ﹐artist
 
