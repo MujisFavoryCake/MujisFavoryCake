@@ -1,4 +1,1 @@
 
--->∿  Muji! ﹢ he/she 
-  ﹐artist
-
